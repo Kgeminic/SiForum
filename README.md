@@ -56,7 +56,7 @@ DEMO: https://www.atarikafa.com/topluluk/
 Done. 
 
 
-You can have fun posting topics and start creating your community...
+You can have fun posting topics and start creating your community.
 
 
 ## Advantages
